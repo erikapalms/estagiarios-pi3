@@ -7,5 +7,5 @@ Integrantes do grupo:
  Erika Palmeira de Souza<br>
  Jeferson Nolasco Sousa<br>
  Leonardo Maia Silva<br>
- Raul de Paula Portela<br>
+ 
  Rodrigo Mariano Danieli Merlucci<br>
